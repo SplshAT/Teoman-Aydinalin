@@ -1,2 +1,0 @@
-# Teoman-Aydinalin
-Klausur
